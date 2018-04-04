@@ -1,4 +1,4 @@
-IMPORTANTE: Nessuno può essere ritenuto responsabile per eventuali danni a persone o a cose causati direttamente o inderettamente da- ciò che è riportato nel sito, anche sul sito www.alecrosscostitech.altervista.org/Home.
+IMPORTANTE: Nessuno può essere ritenuto responsabile per eventuali danni a persone o a cose causati direttamente o inderettamente da- ciò che è riportato nel sito.
 
 Gli autori sono stati attenti nel riportare i progetti di questo sito e del sito sopra citato, né l'editore sono responsabile d'incidenti o danni causati dalla documentazione contenuta (hardware e/o software), da usi impropri degli esempi proposti o dai suoi derivati. non è fornita- nessuna garanzia del contenuto, in nessuna sua forma, anche in caso di errori o omissioni da parte dell'autore, comunque in buona fede.
 
